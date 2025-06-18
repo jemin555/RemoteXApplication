@@ -1,5 +1,7 @@
-# RemoteXApplication
-====================
+<U><B> About RemoteXApplication<B><?U>
+
+<BR>
+
 Remote X Application is the next highest Remote X Web Application designed and
 invented by wilmix Jemin J at year 2013 for Web7(OJ7) Programming Language.
 I kept it as confidental for more years from competitors,Research guys
