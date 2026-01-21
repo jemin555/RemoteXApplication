@@ -13,6 +13,6 @@ This Remote X Application  is a new  wisdom given by God Jehovah
 and Lord Jesus christ to me  at year 2020.
 
 "I am confident ,God is my refuge,gives me  knowledge and comforter my business will stand without the support 
-of any companies or industries or anybody, it can't be defeated or  overtaken".
+of any companies or industries or anybody, it can't be defeated or  overtaken, i believe in God,Lord jesus christ not at man."
 
  
