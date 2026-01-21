@@ -9,4 +9,6 @@ Because they may copy the features from the Github and implement it.
 Thru Web7(Oj7) Programming Language Java/j2ee ,Dotnet, etc
 are connected.It will be revealed after the complete release of
 Remote X Application for Web7(OJ7),java,C#,python,etc.
+This Remote X Application  is a new  wisdom given by God Jehovah 
+and Lord Jesus christ to me  at year 2020.
  
